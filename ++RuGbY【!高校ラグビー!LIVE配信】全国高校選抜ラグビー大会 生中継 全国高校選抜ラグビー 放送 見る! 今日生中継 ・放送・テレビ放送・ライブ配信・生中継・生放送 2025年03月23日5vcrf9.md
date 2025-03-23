@@ -3,6 +3,10 @@
 
 **全国高校選抜ラグビー大会 2025**は、2025年3月23日（日）に開催される、全国の高校ラグビー強豪校が集結する選抜大会です。この大会は、春の訪れを感じながら、若きラガーマンたちが熱い戦いを繰り広げます。以下に、大会の詳細を記載します。  
 
+[▶▶🏉生中継🏉▶▶ https://t.co/FykZLnGblR](https://t.co/FykZLnGblR)
+
+[▶▶🏉生中継🏉▶▶ https://t.co/FykZLnGblR](https://t.co/FykZLnGblR)
+
 ---
 
 ## 開催概要  
@@ -53,7 +57,7 @@
 
 大会終了後、公式ウェブサイトおよび公式SNSにて結果を速報します。以下のリンクからご確認ください。  
 
-- [結果速報ページ](https://www.hs-rugby2025.jp/results)  
+
 
 ---
 
@@ -70,8 +74,7 @@
 
 大会のライブ中継は以下のプラットフォームでご覧いただけます。  
 
-- [YouTubeライブ](https://youtube.com/hsrugby2025)  
-- [公式ウェブサイト](https://www.hs-rugby2025.jp/live)  
+
 
 ---
 
@@ -92,9 +95,6 @@
 
 ## リンク 🔗  
 
-- [公式ウェブサイト](https://www.hs-rugby2025.jp)  
-- [Twitter](https://twitter.com/hsrugby2025)  
-- [Instagram](https://instagram.com/hsrugby2025)  
 
 ---
 
